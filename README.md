@@ -2,4 +2,4 @@
 - 👀 I’m interested in nwm
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate with my girlfirend ( I don't have girlfriend )
-- 📫 How to reach me: Do Not do it
+- 📫 How to reach me: Don't do it
